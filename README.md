@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @vitim0202
-- 👀 I’m interested in ...  cometer suicidio =]
+- 👀 I’m interested in ... faculdade de psicologia 
 - 🌱 I’m currently learning ...
 - estou aprende afazer contato com alienigenas 
 - 💞️ I’m looking to collaborate on ...
